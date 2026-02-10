@@ -1,0 +1,1 @@
+press the zip file press download raw file  and make sure u have the untiy player download the untiy player from google because its not in the folder then to play the game run the file called tsgb.exe and put it in ur home screen to make it easier to access hope u enjoy the game its not finished yet 
